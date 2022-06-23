@@ -1,0 +1,5 @@
+- 👋 Eu me chamo maria eduarda , tenho 15 anos. 
+- 👀 gosto de comer , gosto de ser sincera, sou chata, sou ruim ....
+- 🌱 amo a natureza 
+- 💞️ amo eu em primeiro lugar , amo deus , amo minha famila,amo tudo e a todos 
+- 📫 nao venham me atentar sou estressada e muito surtada , e mato o primeiro que me julgar 
